@@ -29,4 +29,3 @@
 4Cozinhe por mais 1-2 minutos e junte o creme de leite (não deixe ferver, apenas aquecer);
 
 5Sirva ainda quente.
-
