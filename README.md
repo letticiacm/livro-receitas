@@ -20,7 +20,7 @@ Olá! Seja bem-vindo ao meu livro de receitas!
 
 
 
-*_by Lettícia Calaça_*
+
 
  
 
