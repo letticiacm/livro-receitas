@@ -20,12 +20,12 @@
 
 ## Modo de preparo
 
-1Em uma panela, aqueça o azeite e refogue a cebola e o alho, em seguida acrescente as tiras de frango;
+* Em uma panela, aqueça o azeite e refogue a cebola e o alho, em seguida acrescente as tiras de frango;
 
-2Tempere com o sal e com a páprica;
+* Tempere com o sal e com a páprica;
+* Refogue e adicione a mostarda, o ketchup, o molho inglês e os champignons;
+* Cozinhe por mais 1-2 minutos e junte o creme de leite (não deixe ferver, apenas aquecer);
+* Sirva ainda quente.
 
-3Refogue e adicione a mostarda, o ketchup, o molho inglês e os champignons;
 
-4Cozinhe por mais 1-2 minutos e junte o creme de leite (não deixe ferver, apenas aquecer);
 
-5Sirva ainda quente.
