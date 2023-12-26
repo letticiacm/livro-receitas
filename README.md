@@ -10,6 +10,8 @@ Olá! Seja bem-vindo ao meu livro de receitas!
 
 * Bolo Mesclado
 
+* Bolo de Cenoura
+
 
 
 ### Receitas Salgadas :croissant:
